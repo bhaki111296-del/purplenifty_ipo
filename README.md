@@ -1,2 +1,2 @@
 # purplenifty_ipo
-public 
+stock market 
